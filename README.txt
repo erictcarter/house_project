@@ -1,1 +1,1 @@
-it is awesome
+it is super cool to work hard
