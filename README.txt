@@ -1,1 +1,1 @@
-it is awesome
+git is red hot today
